@@ -1,0 +1,1 @@
+# Google-Code-Jam-11-Qualification-Round-A---Bot-Trust
